@@ -1,1 +1,0 @@
-# areva-paint
